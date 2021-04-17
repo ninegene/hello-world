@@ -1,7 +1,7 @@
 # Hello Everyone!
 
-Hello! I am DawnstarofDawnclan but please call me Dawn. 
-I am a writer and I have some works that are ongoing on Wattpad! :)
+**Hello! I am DawnstarofDawnclan but please call me Dawn.** 
+**I am a writer and I have some works that are ongoing on Wattpad! :)**
 
 **You can find me on:**
 
@@ -96,6 +96,6 @@ Twinkling Love (not gonna be a cheesy romance novel because that would be *barfs
 Falling Tribes series (fanfic for Wings of Fire. Book 1 is called Falling Rain. You will find the prologue of this story in my shared Wattpad account, xXSeahorseXx. It is also still in progress) 
 
 
-Thats all the information but I won't give any private ones cause that'll be stupid. 
+**Thats all the information but I won't give any private ones cause that'll be stupid.** 
 
-See you all in the websites!
+**See you all in the websites!**
