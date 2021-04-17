@@ -3,7 +3,7 @@
 Hello! I am DawnstarofDawnclan but please call me Dawn. 
 I am a writer and I have some works that are ongoing on Wattpad! :)
 
-You can find me on:
+**You can find me on:**
 
 Wattpad: DawnstarofDawnclan/ xXSeahorseXx (its a shared account. We call ourselves the xXSeahorseXx Crew!)
 
@@ -14,7 +14,7 @@ Discord: DawnstarofDawnclan#1502
 Roblox: ShannieLee001
 
 
-Hobbies:
+**Hobbies:**
 
 WRITING!!! I love love love love writing
 
@@ -25,7 +25,7 @@ Cooking! I am a giant foodie
 Gardening! My frontyard is full of plants
 
 
-Things that are unlucky:
+**Things that are unlucky:**
 
 April...my dog, my cousin, my friends pet bird, my friend's teacher, etc died in April. :'(
 
@@ -36,7 +36,7 @@ A perfectly good day because you know...something bad is gonna happen on a perfe
 A horror movie, book, etc because I get nightmares
 
 
-Things that are lucky:
+**Things that are lucky:**
 
 DOGGOSSSSSSSSS! THEY ARE *ABSOLUTLEY* ADORABLE! EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEK (head explodes)
 
@@ -45,7 +45,7 @@ CATSSSSSSS! FUWY LIWWLE GUYSSSS
 Awesome books! 
 
 
-Things I LOVE:
+**Things I LOVE:**
 
 CUTE ANIMALS! 
 
@@ -53,7 +53,7 @@ Discord time without being snitched on by siblings cause I let them find out abo
 Writing time without any inturruptions and disruptions because siblings are annoying. 
 
 
-Books I love:
+**Books I love:**
 
 Warriors (the series! Not the team!)
 
@@ -66,7 +66,7 @@ Percy Jackson
 The Guardian Herds
 
 
-Food I love:
+**Food I love:**
 
 Bacon
 
@@ -85,7 +85,7 @@ Feta Cheese
 (TOO MANY!)
 
 
-Books I am writing that you need to keep and eye out for:
+**Books I am writing that you need to keep and eye out for:**
 
 The Mystic Stone series (Book 1: The Missing Piece is still in progress)
 
